@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on innovative front-end projects that challenge my abilities and help me grow as a developer.
 
-📫 How to reach me: You can connect with me via Email-vinayvsamrat1234@gmail.com or LinkedIn - https://www.linkedin.com/in/vinay-vishwanath-41b253209.
+📫 How to reach me: You can connect with me via Email - vinayvsamrat1234@gmail.com or LinkedIn - https://www.linkedin.com/in/vinay-vishwanath-41b253209.
 
 😄 Pronouns: He/Him
 
